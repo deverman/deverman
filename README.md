@@ -1,4 +1,4 @@
-### Enabling read, write, own with web3
+### Apple Ecosystem & Productivity Expert | Solution Architect & Software Engineer | Empowering Innovation on iOS, macOS, and Beyond
 
 <!--
 **deverman/deverman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

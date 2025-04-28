@@ -1,4 +1,4 @@
-### Apple Ecosystem & Productivity Expert | Solution Architect & Software Engineer | Empowering Innovation on iOS, macOS, and Beyond
+### Product & Engineering Builder 🇸🇬 | $3M+ Transformations @ HSBC, CNN, AIA, LVMH-DFS | Scaled Digital Products to Millions | Singapore
 
 <!--
 **deverman/deverman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
